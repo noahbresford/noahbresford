@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @noahbresford
+- 👀 I’m interested in Coding!
+- 🌱 I’m currently learning C++/Batch
+- 💞️ I’m looking to collaborate on Gthub
+- 📫 How to reach me Noahboy4789@icoud.com
+- 😄 Pronouns: boy/man
+- ⚡ Fun fact: idk
