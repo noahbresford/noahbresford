@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @noahbresford
 - 👀 I’m interested in Coding!
-- 🌱 I’m a gorilla tag mod maker
 - 💞️ I’m looking to collaborate on Gthub
 - 📫 How to reach me Noahboy4789@icoud.com
-- 😄 Pronouns: boy/man
+- 😄 Pronouns: boy/man/him/his
 - ⚡ Fun fact: idk
